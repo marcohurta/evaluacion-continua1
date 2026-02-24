@@ -1,1 +1,2 @@
+![Uploading Screenshot from 2026-02-24 13-00-48.png…]()
 # evaluacion-continua1
